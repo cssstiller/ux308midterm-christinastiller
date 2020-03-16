@@ -18,31 +18,18 @@ The featured artists in the next posts are:
 1. 5 Seconds of Summer: Pop Rock
 2. Why Don't We: Pop
 3. Brockhampton: Hip-Hop
-4. NSYNC: Pop
-5. Fountains of Wayne: Rock
+4. Fountains of Wayne: Rock
 
 Stay tuned for each update on each of these artists in the blog posts to come!
 
-
-
->
+> \
 >
 > \
 >
->
->
->
 > \
->
->
->
->
-> \
->
 >
 > See ya soon!
 >
 > \
->
 >
 >  Christina
